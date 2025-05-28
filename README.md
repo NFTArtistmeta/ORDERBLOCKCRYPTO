@@ -11,3 +11,6 @@ This is python code compiled to .exe its function is to obtain the book of binan
 ![image](https://github.com/user-attachments/assets/1d1f4c1b-e7d4-40eb-9d72-11016385f548)
 
 ![image](https://github.com/user-attachments/assets/261c1aa4-7659-43dc-be66-ee6d2dc43381)
+
+
+https://www.youtube.com/watch?v=04M5LrSaHR8
