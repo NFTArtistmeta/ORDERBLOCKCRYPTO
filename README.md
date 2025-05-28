@@ -14,3 +14,7 @@ This is python code compiled to .exe its function is to obtain the book of binan
 
 
 https://www.youtube.com/watch?v=04M5LrSaHR8
+
+
+
+https://t.me/phytontraderselliot666
